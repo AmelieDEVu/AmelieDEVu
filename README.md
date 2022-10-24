@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AmelieDEVu
-- 👀 I’m tech recruiter for Start-up and
+- 👀 I’m tech recruiter for Start-up 
 - 💞️ I’m looking to collaborate with dev who want to share with me their expectation in order to help them to find their right next challenge 
 - 📫 How to reach me 👉 amelie@avizio.fr 
 
